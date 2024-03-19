@@ -14,7 +14,7 @@
     - 〆 Learning Never Stops 🚀
     <br>
     <br>
-    - 〆 Ready to help others.🌱
+    - 〆 Ready to help other.🌱
     <br>
     <br>
     - 〆 Looking to collaborate on **Open source contributions**
